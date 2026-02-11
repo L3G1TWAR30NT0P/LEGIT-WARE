@@ -68,3 +68,5 @@ https://youtu.be/ChRtAmow1HY
 
 Silent. Clean. Professional.
 This is Legit Ware.
+
+LW V2 is coming...
