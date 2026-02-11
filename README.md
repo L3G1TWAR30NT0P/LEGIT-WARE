@@ -64,7 +64,7 @@ If you want to win, stay legit, and make people salty…
 Legit Ware is the answer.
 
 Watch the full official showcase and see it in action:
-https://youtu.be/aLww-SlsbNE
+https://youtu.be/B7CMHsKNn7E
 
 Silent. Clean. Professional.
 This is Legit Ware.
