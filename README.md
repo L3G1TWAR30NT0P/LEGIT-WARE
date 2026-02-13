@@ -1,72 +1,31 @@
-This is Legit Ware.
-Not your average hub.
-Not made for casuals.
-And definitely not made for people who like losing.
+This is Legit Hub (LH) V2. No fluff, no filler—just pure dominance. If you're looking for an apology for how hard this hits, go somewhere else.
 
-Legit Ware is built for players who want to own the game quietly while everyone else keeps wondering how.
+LEGIT HUB (LH) V2: RELEASE NOTES
+The Rebrand: Legit Ware is Dead.
+We’ve evolved. Legit Hub (LH) is the new standard. It’s cleaner, faster, and more lethal. If you’re still using the old version, you’re already behind.
 
-Let’s be clear.
+THE LOADOUT: WHAT’S NEW
+ESP REBORN: We’ve stripped the garbage. No more screen-cluttering boxes or neon trash. You get high-fidelity, clinical intel. You see them; they don't see you. Simple.
 
-ESP gives you unfair awareness without looking obvious.
-You see players through everything, perfectly displayed, clean as hell.
-No screen spam. No ugly boxes. Just information—and power.
+AIMBOT V2: Re-coded for perfection. We’ve killed the robotic snapping. This is smooth, human-like tracking that deletes enemies before they can even react. It doesn't just aim; it hunts.
 
-Aimbot is where skill meets domination.
-Smooth. Controlled. Adjustable to perfection.
-No snapping like a clown cheat—this looks legit while it deletes enemies.
+ADVANCED PREDICTION: Stop chasing shadows. Our prediction engine puts your crosshair where the enemy will be. By the time they move, they’re already dead.
 
-You control everything with Custom Keybinds.
-Instant toggles. Instant reactions.
-If you’re slow, that’s on you—not the hub.
+ZERO PERFORMANCE TAX: Most hubs eat your frames. LH runs silent and optimized. Zero FPS drop. We’re lightweight; the competition is bloated garbage.
 
-With UI Destruction, the menu vanishes.
-No distractions. No unnecessary visuals.
-Just gameplay—and victims.
+UI DESTRUCTION: Get the menu out of your way. One click and it’s gone. Total immersion. Total focus. Total casualties.
 
-Legit Ware doesn’t look cheap.
-It features high-quality animations that feel smooth, modern, and premium.
-Every click feels clean. Every transition feels intentional.
+FRIEND & TEAM LOGIC: Don’t be a clown. Our logic ensures you never lock onto a teammate. Keep your "legit" reputation while you stack bodies.
 
-The design is simple on purpose.
-No bloated garbage. No useless options.
-If you can’t use this hub, you probably shouldn’t be playing.
+PLAYER SEARCH: No one is anonymous. No one is hidden. Find your targets instantly and systematically.
 
-And let’s talk performance.
+THE BOTTOM LINE
+Other players "grind." You dominate.
+Other players "guess." You already know.
 
-ZERO FPS DROP.
-None.
-Legit Ware runs clean, optimized, and lightweight—while other hubs lag your game into the ground.
+If you want a flashy cheat to show off to your friends, go find a cheap hub. If you want to stay silent, stay clean, and make the entire server salty because they can't figure out how you're so good—LH V2 is the only answer.
 
-With Player Search, you always know who’s in the server.
-No surprises. No hiding.
-Everyone gets found eventually.
+Stop playing fair. Start winning.
 
-Prediction keeps you ahead of movement.
-You’re not reacting—you’re already there.
-By the time they move, it’s too late.
-
-And with Friend & Team Check, you don’t look stupid.
-No locking teammates. No embarrassing mistakes.
-Only enemies get targeted.
-
-Legit Ware isn’t flashy for attention.
-It’s flashy for results.
-
-Other players grind.
-You dominate.
-
-Other players guess.
-You already know.
-
-If you want loud cheats that get you noticed—look somewhere else.
-If you want to win, stay legit, and make people salty…
-
-Legit Ware is the answer.
-
-Watch the full official showcase and see it in action:
-https://youtu.be/ChRtAmow1HY
-
-Silent. Clean. Professional.
-This is Legit Ware.
-
-LW V2 is coming...
+WATCH THE SHOWCASE:
+[We are Uploading the new video]
