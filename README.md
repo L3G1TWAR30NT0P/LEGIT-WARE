@@ -5,7 +5,7 @@ The Rebrand: Legit Ware is Dead.
 We’ve evolved. Legit Hub (LH) is the new standard. It’s cleaner, faster, and more lethal. If you’re still using the old version, you’re already behind.
 
 THE LOADOUT: WHAT’S NEW
-ESP REBORN: We’ve stripped the garbage. No more screen-cluttering boxes or neon trash. You get high-fidelity, clinical intel. You see them; they don't see you. Simple.
+ESP REBORN: We’ve stripped the garbage. You get high-fidelity, clinical intel. You see them; they don't see you. Simple.
 
 AIMBOT V2: Re-coded for perfection. We’ve killed the robotic snapping. This is smooth, human-like tracking that deletes enemies before they can even react. It doesn't just aim; it hunts.
 
